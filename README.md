@@ -1,1 +1,1 @@
-# WikiScript
+I'm too lazy
